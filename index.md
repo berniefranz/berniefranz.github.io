@@ -34,4 +34,5 @@ Your Pages site will use the layout and styles from the Jekyll theme you have se
 
 ### Support or Contact
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’[verbale-kommunikation-beherrschen-einfuhrung-scorm12-ivLkQV8h.zip](https://github.com/berniefranz/berniefranz.github.io/files/8192059/verbale-kommunikation-beherrschen-einfuhrung-scorm12-ivLkQV8h.zip)
+ll help you sort it out.
